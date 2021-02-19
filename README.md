@@ -1,1 +1,2 @@
 # Blueberry-Pancakes
+Blueberry Pancakes are pancakes only, but with the extra addition of blueberries in it. These pancakes are one of the most delicious and fluffiest varieties of pancakes there are. This recipe for blueberry pancakes serves 2 people. Enjoy!
